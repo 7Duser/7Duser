@@ -1,3 +1,5 @@
-the the the the the the the the the the the the
+hi im a professional retard
+most of my stuff is private
+mainly use C#
 
-i contribute nothing of value to the public
+ironbrew1 on top
